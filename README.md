@@ -1,3 +1,5 @@
+![Preview Image](sddefault.jpg)
+
 SonyVegas-2024
 Welcome to the SonyVegas-2024 repository - your gateway to discovering Sony Vegas 2024 Cracked for free video editing! 🚀
 
